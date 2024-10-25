@@ -5,4 +5,5 @@
   
 📞Contatos:
 - 😄 Celular: (47) 99970-6839
+- 📧 Email: cauevieiradasilva456@gmail.com
 - ⚡ Linkedin: https://www.linkedin.com/in/cau%C3%AA-vieira-da-silva-773a3725a/
